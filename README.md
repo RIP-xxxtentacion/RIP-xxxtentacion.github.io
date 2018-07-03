@@ -1,0 +1,1 @@
+# RIP-xxxtentacion.github.io
